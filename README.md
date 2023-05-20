@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Gratz007
 - 👀 I’m interested in Crypto, CPA, PPC, TG
-- 🌱 I’m currently learning  new for me
+- 🌱 I’m currently learning - new for me
 - 💞️ I’m looking to collaborate on TG channel 
 - 📫 How to reach me - https://t.me/Kyshnir_illya
 

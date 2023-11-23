@@ -2,7 +2,7 @@
 - 👀 I’m interested in Crypto, CPA, PPC, TG
 - 🌱 I’m currently learning - new for me
 - 💞️ I’m looking to collaborate on TG channel 
-- 📫 How to reach me - https://t.me/Kyshnir_illya
+- 📫 How to reach me - https://t.me/krypto_news_ido
 
 <!---
 Gratz007/Gratz007 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
